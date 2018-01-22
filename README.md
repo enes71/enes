@@ -1,4 +1,1 @@
 # enes
-
-hı man 
-sealmunelykum
